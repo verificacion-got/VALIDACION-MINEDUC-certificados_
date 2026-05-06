@@ -1,0 +1,1 @@
+# VALIDACION-MINEDUC-certificados_
